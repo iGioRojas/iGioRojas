@@ -1,5 +1,5 @@
 ### Hi👋, my name is Geovanny
-#### Computer Science Student in ESPOL
+#### Computer Science Student at ESPOL
 
 
 ## Social Media 👇🏻:
